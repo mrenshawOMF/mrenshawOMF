@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mark Renshaw
+- 👀 I’m interested in IT stuff.
+- 🌱 I’m currently learning IT stuff.
+- 💞️ I’m looking to collaborate on IT stuff.
+- 📫 How to reach me @mrenshawOMF
